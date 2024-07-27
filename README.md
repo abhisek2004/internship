@@ -6,6 +6,8 @@
 ![2 BHARAT INTERN CERTIFICATE](https://github.com/user-attachments/assets/7aec43b8-c007-44a4-9b50-5c8884300f05)
 ![3 CODE SOFT LETTER](https://github.com/user-attachments/assets/2bb5b2d1-b93c-459b-8e59-e48f7dd852dc)
 ![3 CODE SOFT CERTIFICATE](https://github.com/user-attachments/assets/e298cbd4-d5ff-4229-baab-7cf94b788cc2)
+![4 Oasis Infobyte  LETTER](https://github.com/user-attachments/assets/57b7e6d1-99f1-4ae2-b444-9547e8f8eefd)
+![4 Oasis Infobyte CERTIFICATE](https://github.com/user-attachments/assets/23491d60-10d9-4fc2-a369-e8f543f5c488)
 
 
 
