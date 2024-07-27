@@ -31,8 +31,10 @@
 ![12 (1 STOP (PERSONIFWY) ) DS LETTER](https://github.com/user-attachments/assets/6e059742-06b8-4975-aefc-a58eb8135be6)
 ![12 (1 STOP (PERSONIFWY) ) DS LETTER (2)](https://github.com/user-attachments/assets/c4c051de-f5d5-44b6-9c81-65575d57c7f5)
 ![13 (1STOP (PERSONIFWY)) DS  Certificate Participation (1)](https://github.com/user-attachments/assets/ee7a4843-f833-4a64-bf75-04649b498eaa)
-![Uploading ![13 (1STOP (RAISE DIGITAL)) DS Certificate project Completion (2)](https://github.com/user-attachments/assets/bcf35dac-4470-4c4d-ad7c-c6ef95f44b03)
-13 (1STOP (PERSONIFWY)) DS Certificate Participation internship (2).jpg…]()
+![13 (1STOP (PERSONIFWY)) DS  Certificate Participation (1)](https://github.com/user-attachments/assets/b102e739-179e-4c08-817f-b33928b437f1)
+![13 (1STOP (PERSONIFWY)) DS Certificate Participation internship (2)](https://github.com/user-attachments/assets/880d90ec-f0a6-44ee-9303-8d82cd795395)
+![13 (1STOP (RAISE DIGITAL)) DS Certificate project Completion (2)](https://github.com/user-attachments/assets/c24587d6-a0a0-40bf-a1b3-36053cfc5351)
+
 
 
 
