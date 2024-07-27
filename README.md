@@ -15,6 +15,8 @@
 ![6 DIGITAL BHEM BEST INTERN (3)](https://github.com/user-attachments/assets/39ccd312-9db7-47bb-a2d4-cbe3d2559a3f)
 ![6 DIGITAL BHEM BEST INTERN (2)](https://github.com/user-attachments/assets/3fb4fe08-dbe8-482e-a97c-eb3406d6e103)
 ![6 DIGITAL BHEM BEST INTERN (1)](https://github.com/user-attachments/assets/33bc0126-ec9d-485b-be8e-42afedcdc5bb)
+![7 Prodigy InfoTech LETTER](https://github.com/user-attachments/assets/7cb7f316-312d-4f97-8316-a19a6a2190e9)
+![7 Prodigy InfoTech CERTIFICATE](https://github.com/user-attachments/assets/1af3f033-5a2a-4d1c-90d3-30abeefee058)
 
 
 
