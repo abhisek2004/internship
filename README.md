@@ -44,19 +44,17 @@
 ![Uploading 14 (Edu-versity (Full -Stack-Web development)) Participation Certificate.jpg…]()
 ![14 (Edu-versity (Full -Stack-Web development)) Industrial Training Completion Certificate](https://github.com/user-attachments/assets/6bfe36f2-a59f-4873-87a5-3e6b0838aa70)
 ![Uploading 14 (Edu-versity (Full -Stack-Web development)) Internship Completion Certificate.jpg…]()
+![15 COGNORISE LETTER](https://github.com/user-attachments/assets/0ccc4f5d-2737-48fa-ad5d-274d4698a24d)
+![15 COGNORISE Certificate](https://github.com/user-attachments/assets/dab052e8-7797-40ec-a2dc-ced4a0a028aa)
+![16 COGNIFYZ LETTER](https://github.com/user-attachments/assets/5b077494-412d-47d9-b286-ab682f9314d4)
+![16 COGNIFYZ Certificate](https://github.com/user-attachments/assets/23fa7dad-72de-4e5a-8a09-56af98806c8a)
+![17 CODE CASA LETTER](https://github.com/user-attachments/assets/69457727-7ecd-4bd6-b7a6-0cb3f5d25ece)
+![17 CODE CASA Certificate](https://github.com/user-attachments/assets/2759e16d-affd-4201-8b68-e93b77d98afa)
+![18 IzyCode Ltd Letter](https://github.com/user-attachments/assets/b4bb29dd-8f6b-4ab1-9709-2d6a2a7bbc40)
+![18 IzyCode Ltd Certificate](https://github.com/user-attachments/assets/ba2c9f53-3209-497c-95a4-87504d37cd75)
+![19 Engineercore Certificate (3)](https://github.com/user-attachments/assets/f340ecfb-bdf3-494a-b6e8-77df83a9d2e3)
+![19 Engineercore Certificate (1)](https://github.com/user-attachments/assets/8c365e80-61cd-4999-aeb0-6261adb74a35)
+![19 Engineercore Certificate (2)](https://github.com/user-attachments/assets/3f8e32ff-2f00-4a54-be5a-6777976f23b4)
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
+![Summer of code contributorbadge](https://github.com/user-attachments/assets/74c537c7-0455-4834-b77f-b755d1ac24fd)
+![Welcome Badge SWOC Season 4](https://github.com/user-attachments/assets/084f9891-e23d-4029-8666-6fbf1f8e7237)
