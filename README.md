@@ -10,6 +10,11 @@
 ![4 Oasis Infobyte CERTIFICATE](https://github.com/user-attachments/assets/23491d60-10d9-4fc2-a369-e8f543f5c488)
 ![5 CODERS CAVE LETTER](https://github.com/user-attachments/assets/150c4cf9-ab7d-46e3-afa0-86aa382c9230)
 ![5 CODERS CAVE CERTIFICATE](https://github.com/user-attachments/assets/7cdea815-8816-4b83-b116-0cf875ddeff3)
+![6 DIGITAL BHEM LETTER](https://github.com/user-attachments/assets/6b539fa4-b27e-460e-a66b-d0dd16197ddc)
+![6 DIGITAL BHEM CERTIFICATE](https://github.com/user-attachments/assets/06b3e83d-99d2-4f00-b905-1b01fc05fc86)
+![6 DIGITAL BHEM BEST INTERN (3)](https://github.com/user-attachments/assets/39ccd312-9db7-47bb-a2d4-cbe3d2559a3f)
+![6 DIGITAL BHEM BEST INTERN (2)](https://github.com/user-attachments/assets/3fb4fe08-dbe8-482e-a97c-eb3406d6e103)
+![6 DIGITAL BHEM BEST INTERN (1)](https://github.com/user-attachments/assets/33bc0126-ec9d-485b-be8e-42afedcdc5bb)
 
 
 
