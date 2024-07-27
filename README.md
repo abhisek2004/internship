@@ -17,6 +17,8 @@
 ![6 DIGITAL BHEM BEST INTERN (1)](https://github.com/user-attachments/assets/33bc0126-ec9d-485b-be8e-42afedcdc5bb)
 ![7 Prodigy InfoTech LETTER](https://github.com/user-attachments/assets/7cb7f316-312d-4f97-8316-a19a6a2190e9)
 ![7 Prodigy InfoTech CERTIFICATE](https://github.com/user-attachments/assets/1af3f033-5a2a-4d1c-90d3-30abeefee058)
+![8 LearnSmasher EduTech LLP LETTER](https://github.com/user-attachments/assets/afa9d363-f7b2-4401-b2ba-741ca46de1b3)
+![8 LearnSmasher EduTech LLP CERTIFICATE](https://github.com/user-attachments/assets/8c22dedd-e353-451d-9d21-b2a0e41e950e)
 
 
 
