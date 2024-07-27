@@ -19,6 +19,32 @@
 ![7 Prodigy InfoTech CERTIFICATE](https://github.com/user-attachments/assets/1af3f033-5a2a-4d1c-90d3-30abeefee058)
 ![8 LearnSmasher EduTech LLP LETTER](https://github.com/user-attachments/assets/afa9d363-f7b2-4401-b2ba-741ca46de1b3)
 ![8 LearnSmasher EduTech LLP CERTIFICATE](https://github.com/user-attachments/assets/8c22dedd-e353-451d-9d21-b2a0e41e950e)
+![9 CODE ALPHA LETTER](https://github.com/user-attachments/assets/a6288b75-afae-41f7-9f4e-3048999af3d4)
+![9 CODE ALPHA CERTIFICATE](https://github.com/user-attachments/assets/c23918c7-526d-4003-bfbb-b273e623c806)
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
