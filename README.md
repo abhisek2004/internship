@@ -26,6 +26,8 @@
 ![10 CODE CLUSE CERTIFICATE (1)](https://github.com/user-attachments/assets/b2ef9340-c03a-48b8-bacd-dec61f2ebb94)
 ![10 CODE CLUSE CERTIFICATE LOR (2)](https://github.com/user-attachments/assets/5ad3f6fa-7dce-47ed-ad69-63d7ee9a664e)
 ![10 CODE CLUSE CERTIFICATE (3)](https://github.com/user-attachments/assets/fc5241de-0a2c-466c-93bd-046409d841dc)
+![11 OctaNet Services Pvt Ltd LETTER](https://github.com/user-attachments/assets/c40eb709-1b7b-4a52-bbcc-f1a408a2ee76)
+![11 OctaNet Services Pvt Ltd CERTIFICATE](https://github.com/user-attachments/assets/732707f9-6111-49fa-a182-fda721dbd38e)
 
 
 
