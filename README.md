@@ -49,10 +49,13 @@
 
 ---
 
+# Intern Prodigy InfoTech · Internship (Jan 2024 to Jan 2024 · 1 mo Remote)
+
+![7 Prodigy InfoTech LETTER](https://github.com/user-attachments/assets/76d8dd35-8ca6-4cf4-9a42-57f1d8914b22)
+![7 Prodigy InfoTech CERTIFICATE](https://github.com/user-attachments/assets/6b2f96f3-869a-4713-842f-2e68fe6a324f)
 
 
-
-
+---
 
 
 
