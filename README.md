@@ -1,4 +1,4 @@
-
+![19 Engineercore Certificate (3)](https://github.com/user-attachments/assets/2e19dfdf-0e01-4c39-8f5f-279a228874a6)![19 Engineercore Certificate (2)](https://github.com/user-attachments/assets/5e583ac7-0505-4a44-906c-21bb0a76cde5)
 ---
 
 # Project Intern Gauravgo Games Technologies Internship (Sep 2023 - Sep 2023 · 1 mo Remote)
@@ -86,10 +86,24 @@
 
 
 ---
-# 1Stop.ai Internship  (Feb 2024 - Mar 2024 · 2 mos Remote)
+# 1Stop.ai Internship DS (Feb 2024 - Mar 2024 · 2 mos Remote)
 ![12 (1 STOP (PERSONIFWY) ) DS LETTER](https://github.com/user-attachments/assets/c9d6a7ca-ebb5-425e-89fd-3e0e3b9e3c4f)
 ![12 (1 STOP (PERSONIFWY) ) DS LETTER (2)](https://github.com/user-attachments/assets/ffd2b582-75a7-4df2-9e7e-c9ee6b6d39cc)
+![13 (1STOP (RAISE DIGITAL)) DS Certificate project Completion (2)](https://github.com/user-attachments/assets/2a81752c-4dae-408d-b9ef-be4ccc974c05)
+![13 (1STOP (PERSONIFWY)) DS Certificate Participation internship (2)](https://github.com/user-attachments/assets/81f9e077-a0b7-4f2e-b6e7-84d7f592dc95)
+![13 (1STOP (PERSONIFWY)) DS  Certificate Participation (1)](https://github.com/user-attachments/assets/0b5576d4-c9bc-4439-b90e-75acfeadbfff)
 
+
+---
+# 1Stop.ai Internship WD (Feb 2024 - Mar 2024 · 2 mos Remote)
+![13 (1STOP (RAISE DIGITAL))WD LETTER](https://github.com/user-attachments/assets/f1378cce-00a5-4eef-82ff-4b36e4eb2e7a)
+![13 (1STOP (RAISE DIGITAL))WD LETTER (2)](https://github.com/user-attachments/assets/13a04029-c13c-4cb4-9540-88faa74b0e19)
+![13 (1STOP (RAISE DIGITAL))WD Certificate participation](https://github.com/user-attachments/assets/47a63666-8b5a-4932-9c7d-5dacf07f7183)
+![13 (1STOP (RAISE DIGITAL))WD Certificate project_completion](https://github.com/user-attachments/assets/92c3583a-0058-4b4d-b9f5-06d1ded152e4)
+![13 (1STOP (RAISE DIGITAL))WD Certificate internship](https://github.com/user-attachments/assets/a79e9fdd-c9eb-4c77-b55f-62c5954a4046)
+
+---
+# Project Intern EngineerCore · Internship (Apr 2024 to May 2024 · 2 mos Remote)
 
 
 
