@@ -1,4 +1,5 @@
-![6 DIGITAL BHEM BEST INTERN (2)](https://github.com/user-attachments/assets/13b81b0d-15fd-4ad8-bf03-45005755f64c)---
+
+---
 
 # Project Intern Gauravgo Games Technologies Internship (Sep 2023 - Sep 2023 · 1 mo Remote)
 
@@ -44,7 +45,7 @@
 ![6 DIGITAL BHEM BEST INTERN (1)](https://github.com/user-attachments/assets/dd8dd0c3-e9b2-4715-8b9b-f7874921eab1)
 ![6 DIGITAL BHEM BEST INTERN (2)](https://github.com/user-attachments/assets/c1cff198-d870-4406-97f5-19142722a17d)
 ![6 DIGITAL BHEM BEST INTERN (3)](https://github.com/user-attachments/assets/b9a4a6c5-f4f3-4d18-af2d-c50c5d80b47a)
-
+![6 DIGITAL BHEM BEST INTERN (2)](https://github.com/user-attachments/assets/13b81b0d-15fd-4ad8-bf03-45005755f64c)
 
 ---
 
