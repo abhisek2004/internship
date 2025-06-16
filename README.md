@@ -57,10 +57,12 @@
 
 ---
 
+# Project Intern LearnSmasher EduTech LLP · Internship (Jan 2024 to Feb 2024 · 2 mos Remote)
 
+![8 LearnSmasher EduTech LLP LETTER](https://github.com/user-attachments/assets/628ec0ae-9458-4e89-8455-583119867f88)
+![8 LearnSmasher EduTech LLP CERTIFICATE](https://github.com/user-attachments/assets/e201fd1e-0942-4cbe-863a-7aeda68cd780)
 
-
-
+---
 
 
 
