@@ -1,4 +1,4 @@
-![19 Engineercore Certificate (3)](https://github.com/user-attachments/assets/2e19dfdf-0e01-4c39-8f5f-279a228874a6)![19 Engineercore Certificate (2)](https://github.com/user-attachments/assets/5e583ac7-0505-4a44-906c-21bb0a76cde5)
+
 ---
 
 # Project Intern Gauravgo Games Technologies Internship (Sep 2023 - Sep 2023 · 1 mo Remote)
@@ -104,6 +104,46 @@
 
 ---
 # Project Intern EngineerCore · Internship (Apr 2024 to May 2024 · 2 mos Remote)
+![19 Engineercore Certificate (3)](https://github.com/user-attachments/assets/00c83f25-9ce6-48d8-b877-605ab3b82594)
+![19 Engineercore Certificate (2)](https://github.com/user-attachments/assets/ab672207-30e8-4962-bc45-668d7438f213)
+![19 Engineercore Certificate (1)](https://github.com/user-attachments/assets/a556e00a-fd9c-4832-8531-4368eb0dc38c)
+
+
+---
+# Project Intern Cognifyz Technologies · Internship (May 2024 to May 2024 · 1 mo Remote)
+![16 COGNIFYZ LETTER](https://github.com/user-attachments/assets/eb36bbcd-98a9-4fb2-b005-1204cd84c615)
+![16 COGNIFYZ Certificate](https://github.com/user-attachments/assets/846175a1-a9fe-46bd-919c-717ffbddc874)
+
+
+---
+# Project Intern CognoRise InfoTech · Internship (May 2024 to May 2024 · 1 mo Remote)
+![15 COGNORISE LETTER](https://github.com/user-attachments/assets/535c3c70-0af2-4f84-aa2b-3044002e136a)
+![15 COGNORISE Certificate](https://github.com/user-attachments/assets/1a7d144a-7d28-4bc0-b620-6da28376fe8c)
+
+
+---
+# Project Intern Code Casa Pvt. Ltd. · Internship (May 2024 to May 2024 · 1 mo Remote)
+![17 CODE CASA LETTER](https://github.com/user-attachments/assets/23dcc6b6-d500-411a-beec-a279d0dd8204)
+![17 CODE CASA Certificate](https://github.com/user-attachments/assets/6c12f4b2-9309-49a8-9fc4-8c10fc84c743)
+
+
+---
+# Project Intern IzyCode · Internship (Jun 2024 to Jun 2024 · 1 mo Remote)
+![18 IzyCode Ltd Letter](https://github.com/user-attachments/assets/7df8e068-3d3a-4a1c-935b-ff8912115e24)
+![18 IzyCode Ltd Certificate](https://github.com/user-attachments/assets/3e7f0bd9-9a3d-415c-8114-7c2f1ea3f504)
+
+
+---
+# Project Intern Edu-versity · Internship (May 2024 to Jul 2024 · 2 mos Remote)
+![14 FORWARDING FROM UNIVERSITY](https://github.com/user-attachments/assets/b52a59af-e726-4735-a0a6-bbebd760e8e2)
+![14 (Edu-versity (Full -Stack-Web development)) LETTER](https://github.com/user-attachments/assets/8e70c339-ffe5-4204-b2b6-f0f1bfbf258a)
+![14 (Edu-versity (Full -Stack-Web development)) Industrial Training Completion Certificate](https://github.com/user-attachments/assets/9919a744-efe5-452d-a2ca-0918b283dfef)
+![14 (Edu-versity (Full -Stack-Web development)) Internship Completion Certificate](https://github.com/user-attachments/assets/20a1e784-7910-4139-9bb2-3eeb6d1356f8)
+![14 (Edu-versity (Full -Stack-Web development)) Participation Certificate](https://github.com/user-attachments/assets/a0869589-ea7b-4192-852f-b913f6d6c9dc)
+![14 (Edu-versity (Full -Stack-Web development)) LOR](https://github.com/user-attachments/assets/662cb085-be4b-4bb4-aced-d12ee28c5d8b)
+
+
+
 
 
 
