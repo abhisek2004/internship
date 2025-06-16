@@ -145,16 +145,20 @@
 
 ---
 # Hacktoberfest 2024 Full-time (Oct 2024 to Oct 2024 · 1 mo Odisha, India · Remote)
-![Summer of code contributorbadge](https://github.com/user-attachments/assets/747ff02f-3127-4a63-8fec-7a074ff62175)
-
----
 ![Screenshot 2024-11-10 232924](https://github.com/user-attachments/assets/34e23e78-e654-4094-8b7c-ebd58f16dc7b)
 ![Screenshot 2024-11-10 232933](https://github.com/user-attachments/assets/9a83035f-dab5-4350-8045-1d513d541ca6)
 ![Screenshot 2024-11-10 232945](https://github.com/user-attachments/assets/d4524a45-2f23-4a3e-bf12-ba8c85415b9b)
 ![1728930962329](https://github.com/user-attachments/assets/070ce6c0-e9a1-49af-85da-007841107ee0)
 ![68747470733a2f2f686f6c6f70696e2e6d652f6162686973656b32303034](https://github.com/user-attachments/assets/c82d8bb8-2c22-4d88-afa2-b0d38ed9c295)
 
+
 ---
+# GirlScript Summer of Code (Full-time · 1 mo Odisha, India · Remote)
+![Summer of code contributorbadge](https://github.com/user-attachments/assets/747ff02f-3127-4a63-8fec-7a074ff62175)
+
+
+---
+# GirlScript Summer of Code (Full-time · 1 mo Odisha, India · Remote)
 ![ABHISEK_PANDA_Badge_Contributor_GSSoC2024-Extd](https://github.com/user-attachments/assets/da9279d0-a2cd-4162-a21c-e8fb558f6f3d)
 ![ABHISEK PANDA_Cert_Contributor_GSSoC2024Extd](https://github.com/user-attachments/assets/cf053153-8769-4db6-9543-086ec533a11f)
 ![Share Badge](https://github.com/user-attachments/assets/d6502c11-c29a-414f-8774-c714afd9dc00)
@@ -163,11 +167,38 @@
 ![GSSoC24_Stats (2)](https://github.com/user-attachments/assets/9a118140-b359-43ea-a0bb-09719cbba9e9)
 
 ---
+# GirlScript Summer of Code (Full-time · 1 mo Odisha, India · Remote)
 ![ABHISEK_PANDA_Badge_Campus_Ambassador_GSSoC2024-Extd](https://github.com/user-attachments/assets/7f2a4471-06c9-4a42-b3fe-120192df9ce3)
 ![ABHISEK PANDA_Cert_Campus Ambassador_GSSoC2024Extd](https://github.com/user-attachments/assets/0865c8d5-fa18-432d-b2c2-ada5ddb5f79e)
 
 
 ---
+![Welcome Badge SWOC Season 4](https://github.com/user-attachments/assets/77c2a6ef-59db-4a81-9da5-8e05722df194)
+
+---
+# Intern Infotact Solutions · Internship (Apr 2025 to Present · 2 mos Remote)
+![21 ABHISEK_PANDA INFOTACT SOLUTIONS](https://github.com/user-attachments/assets/837133a8-9573-489d-b6d1-5dcb2c4f2437)
+![21 ABHISEK_PANDA INFOTACT SOLUTIONS 2](https://github.com/user-attachments/assets/e17d67d4-9e4e-4319-8192-c039382715e8)
+![ABHISEK PANDA_page-0001](https://github.com/user-attachments/assets/f9873012-4a3e-464c-9f3c-05814f069929)
+
+
+---
+# Intern Shadow Fox · Internship (Jun 2025 to Jul 2025 · 1 mos Remote)
+![23 Abhisek Panda Sadow Fox intern](https://github.com/user-attachments/assets/d75e4b60-73bf-4d84-a484-c243812ff61d)
+
+
+---
+# Social Summer Of Code (SSOC) Season 4 
+![Contributor SSOC](https://github.com/user-attachments/assets/ff82167d-250b-432b-b971-6a74083466ee)
+![Contributor SSOC (1)](https://github.com/user-attachments/assets/ca67ea12-bf8f-4ebd-8b17-fec38317ff54)
+
+
+---
+
+# Engineer Intern Trainee Tata Steel Limited. Kalinganagar, odisha, india (May 2025 - Jul 2025 2 Mon Jajpur, Odisha, India · On-site)
+![tata-steel-logo](https://github.com/user-attachments/assets/38334249-dd67-4679-a445-b5293bcbfb56)
+![Abhisek offer letter](https://github.com/user-attachments/assets/c19fd536-97c2-4535-8c31-4132aa16ccc7)
+![2 (5)](https://github.com/user-attachments/assets/d27b2a04-4224-4faf-89b7-38067460ccef)
 
 
 
@@ -179,14 +210,8 @@
 
 
 
-
-
-
-
-
-
-
-
+---
+![2 (6)](https://github.com/user-attachments/assets/35fe77e3-34ca-4429-aa6c-1b4f36af6d83)
 <!--
 
 ![13 (1STOP (PERSONIFWY)) DS Certificate Participation internship (2)](https://github.com/user-attachments/assets/47644e8d-24d9-46ee-b79f-e93000c9221d)![13 (1STOP (PERSONIFWY)) DS Certificate Participation internship (2)](https://github.com/user-attachments/assets/5e0d46d7-3879-4ec9-b42b-cea264396fb4)![13 (1STOP (RAISE DIGITAL)) DS Certificate project Completion (2)](https://github.com/user-attachments/assets/1a8245bf-7d29-4cb5-b6f9-d7cbec4d3189)# internship
