@@ -64,21 +64,31 @@
 
 ---
 
+# Intern CodeAlpha · Internship (Feb 2024 to Feb 2024 · 1 mo Remote)
+![9 CODE ALPHA LETTER](https://github.com/user-attachments/assets/c41ef9be-72b4-41fe-8caa-c2174ead95f8)
+![9 CODE ALPHA CERTIFICATE](https://github.com/user-attachments/assets/ecb2263e-a09b-4398-bfd5-26511cbf2ba9)
+
+---
+
+# Intern CodeClause · Internship (Feb 2024 to Feb 2024 · 1 mo Remote)
+![10 CODE CLUSE LETTER (1)](https://github.com/user-attachments/assets/47ffa0f0-5734-4029-8e93-9028b82d39ed)
+![10 CODE CLUSE LETTER (2)](https://github.com/user-attachments/assets/561e7750-4d26-4c4a-8b4c-39163144318e)
+![10 CODE CLUSE CERTIFICATE (1)](https://github.com/user-attachments/assets/804f2d1d-af2d-46b5-b3b0-13ea1d5e1a44)
+![10 CODE CLUSE CERTIFICATE LOR (2)](https://github.com/user-attachments/assets/090aa813-d71b-4e83-ba38-a5b20cfcd11e)
+![10 CODE CLUSE CERTIFICATE (3)](https://github.com/user-attachments/assets/aa36b894-631d-43ac-b5c2-124e83e8baab)
 
 
+---
+# Intern OctaNet Services Pvt Ltd. · Internship (Feb 2024 to Feb 2024 · 1 mo Remote)
+
+![11 OctaNet Services Pvt Ltd LETTER](https://github.com/user-attachments/assets/bfc9f7b6-2848-408e-ae60-c8cdf7407e00)
+![11 OctaNet Services Pvt Ltd CERTIFICATE](https://github.com/user-attachments/assets/7e4e2fc0-4ac5-4b4b-88cf-25676664b8a6)
 
 
-
-
-
-
-
-
-
-
-
-
-
+---
+# 1Stop.ai Internship  (Feb 2024 - Mar 2024 · 2 mos Remote)
+![12 (1 STOP (PERSONIFWY) ) DS LETTER](https://github.com/user-attachments/assets/c9d6a7ca-ebb5-425e-89fd-3e0e3b9e3c4f)
+![12 (1 STOP (PERSONIFWY) ) DS LETTER (2)](https://github.com/user-attachments/assets/ffd2b582-75a7-4df2-9e7e-c9ee6b6d39cc)
 
 
 
