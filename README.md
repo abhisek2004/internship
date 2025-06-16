@@ -143,6 +143,37 @@
 ![14 (Edu-versity (Full -Stack-Web development)) LOR](https://github.com/user-attachments/assets/662cb085-be4b-4bb4-aced-d12ee28c5d8b)
 
 
+---
+# Hacktoberfest 2024 Full-time (Oct 2024 to Oct 2024 · 1 mo Odisha, India · Remote)
+![Summer of code contributorbadge](https://github.com/user-attachments/assets/747ff02f-3127-4a63-8fec-7a074ff62175)
+
+---
+![Screenshot 2024-11-10 232924](https://github.com/user-attachments/assets/34e23e78-e654-4094-8b7c-ebd58f16dc7b)
+![Screenshot 2024-11-10 232933](https://github.com/user-attachments/assets/9a83035f-dab5-4350-8045-1d513d541ca6)
+![Screenshot 2024-11-10 232945](https://github.com/user-attachments/assets/d4524a45-2f23-4a3e-bf12-ba8c85415b9b)
+![1728930962329](https://github.com/user-attachments/assets/070ce6c0-e9a1-49af-85da-007841107ee0)
+![68747470733a2f2f686f6c6f70696e2e6d652f6162686973656b32303034](https://github.com/user-attachments/assets/c82d8bb8-2c22-4d88-afa2-b0d38ed9c295)
+
+---
+![ABHISEK_PANDA_Badge_Contributor_GSSoC2024-Extd](https://github.com/user-attachments/assets/da9279d0-a2cd-4162-a21c-e8fb558f6f3d)
+![ABHISEK PANDA_Cert_Contributor_GSSoC2024Extd](https://github.com/user-attachments/assets/cf053153-8769-4db6-9543-086ec533a11f)
+![Share Badge](https://github.com/user-attachments/assets/d6502c11-c29a-414f-8774-c714afd9dc00)
+![Screenshot 2024-11-10 232824](https://github.com/user-attachments/assets/859233c8-16df-454e-a049-3b303d809590)
+![Screenshot 2024-11-10 232810](https://github.com/user-attachments/assets/3b20b3c9-1362-45f3-a682-0f8d90d0f185)
+![GSSoC24_Stats (2)](https://github.com/user-attachments/assets/9a118140-b359-43ea-a0bb-09719cbba9e9)
+
+---
+![ABHISEK_PANDA_Badge_Campus_Ambassador_GSSoC2024-Extd](https://github.com/user-attachments/assets/7f2a4471-06c9-4a42-b3fe-120192df9ce3)
+![ABHISEK PANDA_Cert_Campus Ambassador_GSSoC2024Extd](https://github.com/user-attachments/assets/0865c8d5-fa18-432d-b2c2-ada5ddb5f79e)
+
+
+---
+
+
+
+
+
+
 
 
 
