@@ -24,9 +24,13 @@
 ---
 
 
+# Project Intern Oasis Infobyte · Internship (Oct 2023 - Nov 2023 · 2 mos Remote)
+
+![4 Oasis Infobyte  LETTER](https://github.com/user-attachments/assets/dc1d0120-9114-4ace-8171-7adc032d1705)
+![4 Oasis Infobyte CERTIFICATE](https://github.com/user-attachments/assets/b1fb821a-b2ab-413f-8371-7082a9bf2a47)
 
 
-
+---
 
 
 
